@@ -8,7 +8,7 @@ Support our mission. We help build a strong foundation for each artist tto conti
 
 Our Long Term Vision
 
-Clairvoyant Alliance consists of a vision shared with other artists in the community. Creating a unique opportunity for those who wish to share the message behind their artwork. Together we share our visions with others.
+Fractal Vision consists of a vision shared with other artists in the community. Creating a unique opportunity for those who wish to share the message behind their artwork. Together we share our visions with others.
 
 <!--
 **ClairvoyantAlliance/ClairvoyantAlliance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
