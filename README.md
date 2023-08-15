@@ -2,10 +2,7 @@
 
 Our Mission Statement
 
-Support our mission. We help build a strong foundation for each artist tto continue creating their work. Every archival printed product is made locally here in Fort Collins, Colorado and shipped directly to the customer.
-
-
-
+Support our mission. We help build a strong foundation for each artist to continue creating their work. E
 Our Long Term Vision
 
 Fractal Vision consists of a vision shared with other artists in the community. Creating a unique opportunity for those who wish to share the message behind their artwork. Together we share our visions with others.
