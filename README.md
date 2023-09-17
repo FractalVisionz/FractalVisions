@@ -2,10 +2,10 @@
 
 Our Mission Statement
 
-Support our mission. We help build a strong foundation for each artist to continue creating their work. E
+Support our mission. We help build a strong foundation for creators who are also impact makers.
 Our Long Term Vision
 
-Fractal Vision consists of a vision shared with other artists in the community. Creating a unique opportunity for those who wish to share the message behind their artwork. Together we share our visions with others.
+Fractal Vision consists of a vision shared with other builders in the community. Creating a unique opportunity for those who wish to share the message behind their innovative ideas. Together we share our visions with others.
 
 <!--
 **ClairvoyantAlliance/ClairvoyantAlliance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
