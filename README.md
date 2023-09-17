@@ -8,7 +8,7 @@ Our Long Term Vision
 Fractal Vision consists of a vision shared with other builders in the community. Creating a unique opportunity for those who wish to share the message behind their innovative ideas. Together we share our visions with others.
 
 <!--
-**ClairvoyantAlliance/ClairvoyantAlliance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**FractalVisionz/FractalVisions** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
